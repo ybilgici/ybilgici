@@ -20,6 +20,6 @@ Working part time as a backend engineer, going deeper into event driven architec
 
 🔗 Reach me
 
-📫 yigitmecitbilgici@gmail.com
+📫 [Email](yigitmecitbilgici@gmail.com)
 
 💼 [LinkedIn](https://www.linkedin.com/in/yigitbilgici/)
